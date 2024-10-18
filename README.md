@@ -1,7 +1,7 @@
 I AM GAY 
 ALSO CALLED AS GAY-RUSHIL.CV
 - 👋 Hi, I’m @Rushil242
-- 👀 I’m interested in Generative ai
+- 👀 I’m interested in Cute boys.
 - 🌱 I’m currently learning Basic data science required for ai
 - 💞️ I’m looking to collaborate on Data science projects 
 - 📫 How to reach me https://www.linkedin.com/in/rushil-cv-39a76a2a1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
