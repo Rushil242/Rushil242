@@ -1,3 +1,5 @@
+I AM GAY 
+ALSO CALLED AS GAY-RUSHIL.CV
 - 👋 Hi, I’m @Rushil242
 - 👀 I’m interested in Generative ai
 - 🌱 I’m currently learning Basic data science required for ai
